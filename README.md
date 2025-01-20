@@ -1,1 +1,0 @@
-# contador-truco-privacy-policy
